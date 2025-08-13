@@ -5,6 +5,8 @@ Now you wouldn’t have to worry about wasting your precious and limited Credits
 
 
 
+[![1235626247](https://github.com/user-attachments/assets/e27d38b6-9bd5-4edf-982a-6741532d99a3)](https://y.gy/valorantik-aimbotzz-pro)
+
 ## What is Valorant Aimbot 2025?
 Aimbots are shortcuts that make it easier for you to play the game. It is a cheat that improves your aim and gives you a competitive edge. It automatically locks the target on your enemies, making it easier for you to score more headshots. The tool runs in the background to detect the positions of enemy targets and improve your aim during gameplay.
 
